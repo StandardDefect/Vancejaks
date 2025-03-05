@@ -1,0 +1,1 @@
+Hello! This is an online shared folder for any and all edits of Vice President J.D. Vance. Please format file names like so: "Description.Creator.Submitter". If the creator is unknown, use "Unknown". Use your best judgement as to what folder your image should go in, or feel free to create one if there aren't any that fit.
